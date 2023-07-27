@@ -1,4 +1,4 @@
-Chapter: Techniques for Generating Innovative Solutions
+Techniques for Generating Innovative Solutions
 =======================================================
 
 In this chapter, we will explore various techniques and strategies for generating innovative solutions to problems. Building upon the understanding of the psychology of effective problem solving, we will delve into practical methods that can stimulate creativity and help individuals unleash their inner innovator.

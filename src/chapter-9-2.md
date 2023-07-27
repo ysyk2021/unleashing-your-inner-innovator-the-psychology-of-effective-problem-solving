@@ -1,4 +1,4 @@
-Chapter: Setting Goals for Personal Growth through Problem-Solving
+Setting Goals for Personal Growth through Problem-Solving
 ==================================================================
 
 In our quest for personal growth and development, setting meaningful goals is essential. This chapter explores how problem-solving can be utilized to set goals effectively and drive personal growth. By applying problem-solving strategies to goal setting, we can create a roadmap for success and achieve significant personal transformation.

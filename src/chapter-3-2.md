@@ -1,4 +1,4 @@
-Chapter: Techniques for Developing a Growth Mindset
+Techniques for Developing a Growth Mindset
 ===================================================
 
 In this chapter, we will explore various techniques for cultivating a growth mindset---a powerful psychological concept that fosters effective problem-solving and fuels personal growth and development.
