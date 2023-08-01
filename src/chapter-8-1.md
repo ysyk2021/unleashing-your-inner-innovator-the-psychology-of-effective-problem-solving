@@ -1,7 +1,7 @@
 The Role of Risk and Uncertainty in Problem-Solving
 ============================================================
 
-*Risk and uncertainty are integral aspects of problem-solving. This chapter delves into the significance of risk and uncertainty in the problem-solving process and explores how embracing these elements can fuel innovation, drive growth, and unlock our inner innovator.*
+Risk and uncertainty are integral aspects of problem-solving. This chapter delves into the significance of risk and uncertainty in the problem-solving process and explores how embracing these elements can fuel innovation, drive growth, and unlock our inner innovator.
 
 Understanding Risk and Uncertainty
 ----------------------------------
