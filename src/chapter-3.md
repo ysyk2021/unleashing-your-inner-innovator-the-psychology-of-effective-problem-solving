@@ -1,5 +1,3 @@
-Chapter 2: Developing a Growth Mindset for Problem-Solving
-==========================================================
 
 Effective problem-solving requires a growth mindset, which involves believing that your abilities and intelligence can be developed through effort and hard work. In this chapter, we will explore the importance of a growth mindset in problem-solving, techniques for developing a growth mindset, and how to overcome obstacles to effective problem-solving.
 

@@ -1,5 +1,3 @@
-Chapter 5: Generating Innovative Solutions
-==========================================
 
 Innovation is a critical component of effective problem-solving. In this chapter, we will explore the impact of innovation on problem-solving, techniques for generating innovative solutions, and how to build creativity and brainstorming skills.
 

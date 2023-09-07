@@ -1,5 +1,3 @@
-Setting Goals for Professional Growth through Problem-Solving
-=========================================================================================================================
 
 Setting goals is an essential part of professional growth, and problem-solving skills can be used to help achieve those goals. In this chapter, we will explore how to set goals for professional growth through problem-solving, techniques for achieving those goals, and how to measure success.
 

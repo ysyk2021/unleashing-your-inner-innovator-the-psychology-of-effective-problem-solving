@@ -1,5 +1,3 @@
-Introduction
-============
 
 Why Effective Problem-Solving is Important
 ------------------------------------------

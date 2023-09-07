@@ -1,5 +1,3 @@
-Chapter 8: Applying Problem-Solving to Personal Growth
-======================================================
 
 Effective problem-solving skills can be applied to personal growth and development. In this chapter, we will explore how individuals can use problem-solving to achieve personal growth goals.
 

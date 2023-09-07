@@ -1,5 +1,3 @@
-The Impact of Innovation on Problem-solving
-====================================================
 
 Innovation plays a pivotal role in problem-solving, revolutionizing the way we approach challenges and find solutions. This chapter delves into the profound impact of innovation on problem-solving processes and explores how incorporating innovative thinking can lead to more effective problem-solving outcomes.
 

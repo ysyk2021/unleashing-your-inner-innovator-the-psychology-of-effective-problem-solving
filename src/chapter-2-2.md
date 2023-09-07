@@ -1,5 +1,3 @@
-Types of Problem-Solving
-==================================================================
 
 Problem-solving is a critical skill that involves identifying issues or challenges and finding effective solutions to address them. There are different types of problem-solving techniques that individuals can use depending on the nature of the problem they are trying to solve.
 

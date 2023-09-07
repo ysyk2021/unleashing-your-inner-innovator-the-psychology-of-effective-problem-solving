@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Building self-awareness is critical for effective problem-solving. It involves understanding your personality traits, strengths, weaknesses, and problem-solving style to approach challenges more effectively. In this chapter, we will explore techniques for building self-awareness specifically related to problem-solving, as well as how to identify your problem-solving style and build focus and concentration.
 

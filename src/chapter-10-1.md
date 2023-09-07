@@ -1,5 +1,3 @@
-Using Problem-Solving for Career Development
-========================================================================================================
 
 Problem-solving skills are not only important for solving specific challenges but can also be applied to professional growth and career development. In this chapter, we will explore how problem-solving can help with career development, techniques for applying problem-solving to professional growth, and how to use problem-solving to achieve career goals.
 

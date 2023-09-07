@@ -1,5 +1,3 @@
-Chapter 9: Applying Problem-Solving to Professional Growth
-==========================================================
 
 Problem-solving is not only useful for solving workplace challenges but can also be applied to professional growth. In this chapter, we will explore how individuals can use problem-solving to achieve career development goals.
 
