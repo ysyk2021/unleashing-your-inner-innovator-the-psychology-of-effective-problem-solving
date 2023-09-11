@@ -1,5 +1,4 @@
-Chapter: Building Skills and Expertise
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the importance of building skills and expertise in unleashing your inner innovator and becoming an effective problem solver. We delve into the psychology behind skill development, provide strategies for acquiring expertise, and discuss the role of continuous learning in problem-solving.
 
